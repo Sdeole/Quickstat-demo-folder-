@@ -1,1 +1,0 @@
-# Quickstat-demo-folder-
